@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning Business Information Technology
 - 📫 How to reach me: Instagram @madisondyck
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I have Played and almost completed every Resident Evil Game 
+- ⚡ Fun fact: I have played and almost completed every Resident Evil Game 
 
 
